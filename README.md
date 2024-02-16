@@ -8,5 +8,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with error
 - 💬 Ask me about "Why write ~bullshit~ code?"
 - 📫 How to reach me: "moc.liamg@reotua.rednuhtolos"(Please read email addresses from right to left)
-- 😄 Pronouns: he/him
 - ⚡ Fun fact: ComputerGame,Chat
